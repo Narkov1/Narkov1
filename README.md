@@ -1,6 +1,7 @@
 # Pony town ; ᶜᵘʳⁱᵒᵘˢ?
 ☠︎︎`Read this and your soul will be cursed
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/3b10a754-cb22-4b37-a63e-52a70f0f2839" />
+<img width="1200" height="600" alt="719076f694524684f08fc4365a006684" src="https://github.com/user-attachments/assets/ea09b79c-9c93-4d9c-9b24-6f24859eb4f2" />
+
 
 # ♱Narkov꧂
 ;𝗖𝗵, Зайчик, 𝗪𝗨𝗪𝗔, 𝗧𝘀𝗵𝗱, 𝗽𝗼𝗻𝘆/𝗮𝘀𝗵𝗲𝘀 𝘁𝗼𝘄𝗻, 𝗺𝗹𝗽, 𝗣𝗔𝗦𝗪𝗚, 𝗔𝗹𝗶𝗲𝗻 𝗦𝘁𝗮𝗴𝗲, 𝗗𝗿.𝗛𝗼𝘂𝘀𝗲, 𝗣𝗮𝗿𝗮𝗻𝗼𝗿𝗺𝗮𝗹𝗶𝘁𝘆, 𝗖𝗿𝗶𝗺𝗲 𝘀𝘁𝗼𝗿𝗶𝗲𝘀; - Few of my interests
