@@ -1,6 +1,7 @@
 # Pony town ; ᶜᵘʳⁱᵒᵘˢ?
 ☠︎︎`Read this and your soul will be cursed
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/895a9d6d-1df5-4f9e-a79e-3709498995ea" />
+<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/3b10a754-cb22-4b37-a63e-52a70f0f2839" />
+
 # ♱Narkov꧂
 ;𝗖𝗵, Зайчик, 𝗪𝗨𝗪𝗔, 𝗧𝘀𝗵𝗱, 𝗽𝗼𝗻𝘆/𝗮𝘀𝗵𝗲𝘀 𝘁𝗼𝘄𝗻, 𝗺𝗹𝗽, 𝗣𝗔𝗦𝗪𝗚, 𝗔𝗹𝗶𝗲𝗻 𝗦𝘁𝗮𝗴𝗲, 𝗗𝗿.𝗛𝗼𝘂𝘀𝗲, 𝗣𝗮𝗿𝗮𝗻𝗼𝗿𝗺𝗮𝗹𝗶𝘁𝘆, 𝗖𝗿𝗶𝗺𝗲 𝘀𝘁𝗼𝗿𝗶𝗲𝘀; - Few of my interests
 
@@ -27,7 +28,7 @@ I dont do roleplays, unless i somehow get myself into one by accident/ do it wit
 
 I might mispell words due to texting fastly
 
-<img width="300" height="400" alt="trg3" src="https://github.com/user-attachments/assets/bec12f01-e28f-442c-a205-a70ef09cffb1" />
+<img width="300" height="400" alt="trg3" src="https://github.com/user-attachments/assets/14edfe45-a274-4b45-bd71-da12f26b0afe" />
 
 On PT i play with TR skins and Austria mostly.
 #
@@ -35,4 +36,5 @@ On PT i play with TR skins and Austria mostly.
 #
 DNI morons, animal abusers and homophobes.
 #
-<img width="1200" height="530" alt="image" src="https://github.com/user-attachments/assets/94fa94fd-b658-4c9f-832c-71a4b548a8b2" />
+<img width="1200" height="530" alt="image" src="https://github.com/user-attachments/assets/6e541622-99b5-402f-9432-b210a92afc68" />
+
