@@ -3,9 +3,11 @@
 ☠︎︎`⤵︎
 
 # ♱Narkov꧂
-;𝗣𝗮𝗿𝗮𝗻𝗼𝗿𝗺𝗮𝗹𝗶𝘁𝘆, 𝗖𝗿𝗶𝗺𝗲 𝘀𝘁𝗼𝗿𝗶𝗲𝘀, Niche dramas, Psychology, Art; - Few of my interests.
-|
-;𝗖𝗵, Зайчик, 𝗪𝗨𝗪𝗔, 𝗧𝘀𝗵𝗱, 𝗽𝗼𝗻𝘆/𝐝𝐮𝐬𝐭 𝘁𝗼𝘄𝗻, 𝗺𝗹𝗽, 𝗔𝗹𝗶𝗲𝗻 𝗦𝘁𝗮𝗴𝗲, 𝗗𝗿.𝗛𝗼𝘂𝘀𝗲, SU, Дмo, qsmp 2(Polish lore), Aurite, Underdogs; - Fandoms
+;𝗣𝗮𝗿𝗮𝗻𝗼𝗿𝗺𝗮𝗹𝗶𝘁𝘆, 𝗖𝗿𝗶𝗺𝗲 𝘀𝘁𝗼𝗿𝗶𝗲𝘀, 𝙉𝙞𝙘𝙝𝙚 𝙙𝙧𝙖𝙢𝙖𝙨, 𝙋𝙨𝙮𝙘𝙝𝙤𝙡𝙤𝙜𝙮, 𝘼𝙧𝙩; - Few of my interests.
+
+
+
+;𝗖𝗵, Зайчик, 𝗪𝗨𝗪𝗔, 𝗧𝘀𝗵𝗱, 𝗽𝗼𝗻𝘆/𝐝𝐮𝐬𝐭 𝘁𝗼𝘄𝗻, 𝗺𝗹𝗽, 𝗔𝗹𝗶𝗲𝗻 𝗦𝘁𝗮𝗴𝗲, 𝗗𝗿.𝗛𝗼𝘂𝘀𝗲, 𝙎𝙐, Дм𝙤, 𝙦𝙨𝙢𝙥 𝟮(𝙋𝙤𝙡𝙞𝙨𝙝 𝙡𝙤𝙧𝙚), 𝘼𝙪𝙧𝙞𝙩𝙚, 𝙐𝙣𝙙𝙚𝙧𝙙𝙤𝙜𝙨; - Fandoms
 
 I like music, animals, collecting stuff. Trying to learn russian but i lack motivation for anything
 
