@@ -11,7 +11,7 @@
 
 I like music, animals, collecting stuff. Trying to learn russian but i lack motivation for anything
 
-Kind of misantrhopist
+Kind of misanthropist
 
 𝗔𝗻 '𝗮𝗿𝘁𝗶𝘀𝘁', - I draw, mostly digitally, though im a quick burn out. Ill become great one day though/ihope
 
