@@ -3,15 +3,18 @@
 ☠︎︎`⤵︎
 
 # ♱Narkov꧂
-;𝗖𝗵, Зайчик, 𝗪𝗨𝗪𝗔, 𝗧𝘀𝗵𝗱, 𝗽𝗼𝗻𝘆/𝐝𝐮𝐬𝐭 𝘁𝗼𝘄𝗻, 𝗺𝗹𝗽, 𝗔𝗹𝗶𝗲𝗻 𝗦𝘁𝗮𝗴𝗲, 𝗗𝗿.𝗛𝗼𝘂𝘀𝗲, 𝗣𝗮𝗿𝗮𝗻𝗼𝗿𝗺𝗮𝗹𝗶𝘁𝘆, 𝗖𝗿𝗶𝗺𝗲 𝘀𝘁𝗼𝗿𝗶𝗲𝘀; - Few of my interests
+;𝗣𝗮𝗿𝗮𝗻𝗼𝗿𝗺𝗮𝗹𝗶𝘁𝘆, 𝗖𝗿𝗶𝗺𝗲 𝘀𝘁𝗼𝗿𝗶𝗲𝘀, Niche dramas, Psychology, Art; - Few of my interests
+;𝗖𝗵, Зайчик, 𝗪𝗨𝗪𝗔, 𝗧𝘀𝗵𝗱, 𝗽𝗼𝗻𝘆/𝐝𝐮𝐬𝐭 𝘁𝗼𝘄𝗻, 𝗺𝗹𝗽, 𝗔𝗹𝗶𝗲𝗻 𝗦𝘁𝗮𝗴𝗲, 𝗗𝗿.𝗛𝗼𝘂𝘀𝗲, SU, Дмo, qsmp 2(Polish lore), Aurite, Underdogs; - Fandoms
 
-I like music, animals, collecting stuff.
+I like music, animals, collecting stuff. Trying to learn russian but i lack motivation for anything
 
-𝗔𝗻 '𝗮𝗿𝘁𝗶𝘀𝘁', - I draw, mostly digitally, though im a quick burn out. Ill become great one day though
+Kind of misantrhopist
+
+𝗔𝗻 '𝗮𝗿𝘁𝗶𝘀𝘁', - I draw, mostly digitally, though im a quick burn out. Ill become great one day though/ihope
 
 Open minded
 
-Dont be embrassed about yourself when talking to me, i have known many with different personalities and interest, seen alot, the last person to judge is me.
+Dont be embrassed when talking to me, i have known many with different personalities and interests, seen alot, the last person to judge is me.
 
 I might seem ignorant/bored at first, but trust me when i say its not true. I need to get to know you better.
 # Pony town info !
@@ -30,10 +33,10 @@ I might mispell words due to texting fastly (◞‸◟；)
 
 <img width="300" height="300" alt="trg3" src="https://github.com/user-attachments/assets/93254fb1-1ff0-4f8d-9a67-3fe4b4078a5c" />
 
-On PT i use Treich skins most of the time. Main since 2020...(ㅅ´ ˘ `)
+On PT i use Treich/Polish skins most of the time. Got used to it, played since 2020.
 #
 ꧁𓆩༺ENG/PL༻𓆪꧂
 #
-DNI morons, animal abusers and homophobes.
+DNI morons, animal abusers and homophobes. Ill probably wont be much interested if youre like 14- since im 17 lol
 #
 <img width="1200" height="550" alt="image" src="https://github.com/user-attachments/assets/204f8693-7520-4d01-851d-b231d2d43c3a" />
